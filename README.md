@@ -1,1 +1,1 @@
-# curious-curations-2.myshopify.com
+# haxylux.com
